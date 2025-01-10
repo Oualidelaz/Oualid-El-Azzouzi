@@ -5,3 +5,5 @@ I’m a Cybersecurity Professional specializing in ethical hacking methodologies
 ![Badge1](https://github.com/user-attachments/assets/8b91c3af-6f5e-4522-b780-f0ca09825f85)
 ![image](https://github.com/user-attachments/assets/20817463-b227-4b98-82a7-8ec9b1dd57c4)
 
+## 🌟 Highlighted Contributions & Projects
+
